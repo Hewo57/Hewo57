@@ -2,7 +2,7 @@
 - 👀 I’m interested in making html files
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on making html files
-- 📫 How to reach me trough whatsapp
+- 📫 How to reach:- me trough whatsapp
 - 😄 Pronouns: ...
 - ⚡ Fun fact: i am only 12
 
